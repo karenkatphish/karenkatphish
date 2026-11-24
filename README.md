@@ -1,5 +1,3 @@
-BIG WIP using alts profile as a base
-
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=karenkatphish&color=AECFD6&label=Kttens&abbreviated=true)
