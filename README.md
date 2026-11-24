@@ -2,7 +2,7 @@ BIG WIP using alts profile as a base
 
 <div align="center">
 
-${\textsf{\color{#AECFD6}Karen}}$ ${\textsf{\color{#BBD5DA}ₒᵤ}}$ ${\textsf{\color{#DFF1F1}Katana}}$<br>
+${\textsf{\color{#AECFD6}Karen,}}$ ${\textsf{\color{#AECFD6}ₒᵤ}}$ ${\textsf{\color{#BBD5DA}Katana}}$ ${\textsf{\color{#DFF1F1}Katana}}$<br>
 
 ${\textsf{\color{#AECFD6}"⠀WHERE}}$ ${\textsf{\color{#AECFD6}ARE}}$ ${\textsf{\color{#BBD5DA}MY}}$ ${\textsf{\color{#BBD5DA}KIDS}}$ ${\textsf{\color{#DFF1F1}.}}$ ${\textsf{\color{#F5F5F5}.}}$ ${\textsf{\color{#F5F5F5}..⠀"}}$
  <div> ‎‎  ‎‎  ‎‎ </div>
