@@ -4,7 +4,7 @@ BIG WIP using alts profile as a base
 
 ${\textsf{\color{#AECFD6}Karen,}}$ ${\textsf{\color{#AECFD6}Katana}}$ ${\textsf{\color{#BBD5DA}ₒᵤ}}$ ${\textsf{\color{#DFF1F1}Dove}}$<br>
 
-${\textsf{\color{#AECFD6}"⠀WHERE}}$ ${\textsf{\color{#AECFD6}ARE}}$ ${\textsf{\color{#BBD5DA}MY}}$ ${\textsf{\color{#BBD5DA}KIDS}}$ ${\textsf{\color{#DFF1F1}.}}$ ${\textsf{\color{#F5F5F5}.}}$ ${\textsf{\color{#F5F5F5}..⠀"}}$
+${\textsf{\color{#AECFD6}"⠀I}}$ ${\textsf{\color{#AECFD6}ain't}}$ ${\textsf{\color{#BBD5DA}taking}}$ ${\textsf{\color{#BBD5DA}your}}$ ${\textsf{\color{#DFF1F1}'dirty}}$ ${\textsf{\color{#F5F5F5}laundry'}}$ ${\textsf{\color{#F5F5F5}no more!⠀"}}$
  <div> ‎‎  ‎‎  ‎‎ </div>
 
 ![](https://komarev.com/ghpvc/?username=karenkatphish&color=AECFD6&label=Kttens&abbreviated=true)
