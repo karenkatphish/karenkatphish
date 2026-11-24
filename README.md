@@ -2,7 +2,7 @@
 
 ${\textsf{\color{#AECFD6}Karen}}$ ${\textsf{\color{#BBD5DA}ou}}$ ${\textsf{\color{#DFF1F1}Katana}}$<br>
 
-${\textsf{\color{#AECFD6}"⠀WHERE}}$ ${\textsf{\color{#AECFD6}ARE}}$ ${\textsf{\color{#BBD5DA}MY}}$ ${\textsf{\color{#BBD5DA}KIDS}}$ ${\textsf{\color{#DFF1F1}and}}$ ${\textsf{\color{#F5F5F5}my}}$ ${\textsf{\color{#F5F5F5}honor.⠀"}}$
+${\textsf{\color{#AECFD6}"⠀WHERE}}$ ${\textsf{\color{#AECFD6}ARE}}$ ${\textsf{\color{#BBD5DA}MY}}$ ${\textsf{\color{#BBD5DA}KIDS}}$ ${\textsf{\color{#DFF1F1}.}}$ ${\textsf{\color{#F5F5F5}.}}$ ${\textsf{\color{#F5F5F5}..⠀"}}$
  <div> ‎‎  ‎‎  ‎‎ </div>
 
 ![](https://komarev.com/ghpvc/?username=karenkatphish&color=AECFD6&label=Kttens&abbreviated=true)
