@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=karenkatphish&color=AECFD6&label=Kittens&abbreviated=true)
 
-<img align="left" src="https://i.ibb.co/ght0yxp/Untitled11-20261126225613.png" width="300">
+<img align="left" src="https://i.ibb.co/ght0yxp/Untitled11-20261126225613.png" width="400">
 </div>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=AECFD6&width=435&lines=+%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80I+ain't+taking+your+"dirty+laundry"+no+more!)](https://git.io/typing-svg)
