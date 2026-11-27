@@ -9,8 +9,8 @@
   </div>
 
 <p align="left"> 
-${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎ ‎‎‎dave ‎‎ ‎‎‎‎‎ₒᵣ ‎‎ crow}}$ ‎‎ ‎‎‎ ‎ ‎‎<img width="3%" height="2%" src="https://i.ibb.co/v6z8xVD5/Karen-Emblem-v2.webp" /> ‎‎ ‎‎‎ ‎ ‎‎‎‎ ${\textsf{\color{#EB7F31}he ‎‎ ‎‎‎ ‎‎‎ it ‎‎ ‎‎‎ ‎‎‎ prns}}$<br>
-${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎ ‎‎‎20 ‎‎ ‎‎‎ ‎‎‎ ︶‎‎‎ ‎‎ ‎‎‎ ‎‎‎ undead ghost crow freak‎‎‎}}$<br>
+${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎ ‎‎‎karen ‎‎ ‎‎‎‎‎ₒᵤ ‎‎ katana}}$ ‎‎ ‎‎‎ ‎ ‎‎<img width="3%" height="2%" src="https://i.ibb.co/v6z8xVD5/Karen-Emblem-v2.webp" /> ‎‎ ‎‎‎ ‎ ‎‎‎‎ ${\textsf{\color{#EB7F31}she ‎‎ ‎‎‎ ‎‎‎ he ‎‎ ‎‎‎ ‎‎‎ prns}}$<br>
+${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎ ‎‎‎20 ‎‎ ‎‎‎ ‎‎‎ ︶‎‎‎ ‎‎ ‎‎‎ ‎‎‎ bangmeow yearner‎‎‎}}$<br>
 ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎eng ‎‎ ‎‎‎ ‎‎‎ ╱ ‎‎ ‎‎‎ ‎‎‎ esp ‎‎ ‎‎‎ ‎‎‎ 𓈒‎‎‎ ‎‎ ‎‎‎ ‎‎‎ c+h ‎‎ ‎‎‎ ‎‎‎ is ‎‎ ‎‎‎ ‎‎‎ ok}}$<br>
 
 
