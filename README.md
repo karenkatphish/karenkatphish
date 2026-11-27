@@ -9,6 +9,8 @@
 <img align="left" src="https://i.ibb.co/ght0yxp/Untitled11-20261126225613.png" width="400">
 </div>
 
+<img src="https://i.ibb.co/JjHP2jDY/Untitled8-20261116224801.png" width="300">
+
 <p align="center"> 
 ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎‎‎ ‎dave ‎‎ ‎‎‎‎‎ₒᵣ ‎‎ crow}}$ ‎‎ ‎‎‎ ‎ ‎‎<img width="4%" height="3%" alt="https://mspaintadventures.fandom.com/wiki/Davesprite" src="https://static.wikia.nocookie.net/mspaintadventures/images/f/f0/Crowkernel.png/revision/latest/scale-to-width-down/49?cb=20100825225532" /> ‎‎ ‎‎‎ ‎ ‎‎‎‎ ${\textsf{\color{#EB7F31}he ‎‎ ‎‎‎ ‎‎‎ it ‎‎ ‎‎‎ ‎‎‎ prns}}$<br>
 ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎20 ‎‎ ‎‎‎ ‎‎‎ ︶‎‎‎ ‎‎ ‎‎‎ ‎‎‎ undead ghost crow freak‎‎‎}}$<br>
