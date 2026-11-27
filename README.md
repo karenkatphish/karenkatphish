@@ -17,9 +17,9 @@ ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎20 ‎�
 ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎eng ‎‎ ‎‎‎ ‎‎‎ ╱ ‎‎ ‎‎‎ ‎‎‎ esp ‎‎ ‎‎‎ ‎‎‎ 𓈒‎‎‎ ‎‎ ‎‎‎ ‎‎‎ c+h ‎‎ ‎‎‎ ‎‎‎ is ‎‎ ‎‎‎ ‎‎‎ ok}}$<br>
 
 
- ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎[prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎[wip](https://crowzbonez.straw.page/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) 
+ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎‎‎[prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎[wip](https://crowzbonez.straw.page/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) 
 
-<p align="center">  
+<p align="left">  
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=eb7f31&bar_color_cover=false">
   </a>
