@@ -21,8 +21,3 @@ ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎eng ‎
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=eb7f31&bar_color_cover=false">
   </a>
-
-<div align="center">
-
-${\textsf{\color{#EB7F31}pony town's davesprite and jadesprite's biggest fan}}$ ‎‎ ‎‎‎ ‎‎‎ [₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/THE-TEMPIST) [₄](https://github.com/pt-everypony) [₅](https://github.com/kaotown)
-</div>
