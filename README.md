@@ -5,7 +5,7 @@
    ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=AECFD6&width=435&lines=+%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80I+ain't+taking+your+"dirty+laundry"+no+more!)](https://git.io/typing-svg)
   </div>
 
-<div align="center">
+
 <img align="left" src="https://i.ibb.co/ght0yxp/Untitled11-20261126225613.png" width="300">
 </div>
 
