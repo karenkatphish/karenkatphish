@@ -11,7 +11,7 @@
 <p align="left"> 
 ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎ ‎‎‎karen ‎‎ ‎‎‎‎‎ₒᵤ ‎‎ katana}}$ ‎‎ ‎‎‎ ‎ ‎‎<img width="3%" height="2%" src="https://i.ibb.co/v6z8xVD5/Karen-Emblem-v2.webp" /> ‎‎ ‎‎‎ ‎ ‎‎‎‎ ${\textsf{\color{#EB7F31}she ‎‎ ‎‎‎ ‎‎‎ he ‎‎ ‎‎‎ ‎‎‎ prns}}$<br>
 ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎  ‎‎‎ ‎‎‎ ‎‎‎20 ‎‎ ‎‎‎ ‎‎‎ ︶‎‎‎ ‎‎ ‎‎‎ ‎‎‎ certified ‎‎ ‎‎‎ ‎‎‎ bangmeow ‎‎ ‎‎‎ ‎‎‎ yearner‎‎‎}}$<br>
-${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎ ‎eng ‎‎ ‎‎‎ ‎‎‎ ╱ ‎‎ ‎‎‎ ‎‎‎ esp ‎‎ ‎‎‎ ‎‎‎ 𓈒‎‎‎ ‎‎ ‎‎‎ ‎‎‎ c+h ‎‎ ‎‎‎ ‎‎‎ is ‎‎ ‎‎‎ ‎‎‎ ok}}$<br>
+${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎ ‎eng ‎‎ ‎‎‎ ‎‎‎ ╱ ‎‎ ‎‎‎ ‎‎‎ esp ‎‎ ‎‎‎ ‎‎‎ 𓈒‎‎‎ ‎‎ ‎‎‎ ‎‎‎ c+h ‎‎ ‎‎‎ ‎‎‎ is ‎‎ ‎‎‎ ‎‎‎ ok}}$<br>
 
 
  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎‎‎[prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎[wip](https://crowzbonez.straw.page/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) 
