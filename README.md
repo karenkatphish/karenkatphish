@@ -14,7 +14,7 @@ ${\textsf{\color{#AECFD6} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎
 ${\textsf{\color{#AECFD6} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎‎‎‎‎‎ ‎‎ ‎‎‎ ‎‎‎‎‎‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎‎ ‎‎‎ eng ‎‎ ‎‎‎ ‎‎‎ ╱ ‎‎ ‎‎‎ ‎‎‎ esp ‎‎ ‎‎‎ ‎‎‎ 𓈒 ‎‎ ‎‎‎ ‎‎‎ c+h ‎‎ ‎‎‎ ‎‎‎ is ‎‎ ‎‎‎ ‎‎‎ ok}}$<br>
 
 
- ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎ ‎‎‎‎‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎‎‎‎‎  ‎ ‎‎‎‎‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎‎‎‎‎  ‎ ‎‎‎‎‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎‎ ‎‎‎ [fluffle](https://fluffle.cc/karenkatphish) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎[ata](https://decayingcrow.atabook.org/) 
+ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎ ‎‎‎‎‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎‎‎‎‎  ‎ ‎‎‎‎‎‎ ‎‎‎  ‎‎ ‎‎‎  ‎‎‎‎‎  ‎ ‎‎‎‎‎‎ ‎‎‎  ‎‎ ‎‎‎[fluffle](https://fluffle.cc/karenkatphish) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎[ata](https://decayingcrow.atabook.org/) 
 
 <p align="left">  
   <a href="https://github.com/kittinan/spotify-github-profile">
